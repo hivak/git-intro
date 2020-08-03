@@ -38,7 +38,7 @@
 
   ![mittens](https://upload.wikimedia.org/wikipedia/en/2/2e/PolydactylMittens.JPG)
   
-  The command line is ...
+  The command line is hip
   
 - Renee Lam
 
